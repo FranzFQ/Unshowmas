@@ -1,7 +1,7 @@
 # Unshowmas
 ### me gusta por las distintas tramas que tiene y por el carisma :+1: :smiley: que tienen los personajes :blush: ademas de contar :grinning: con una extensa cantidad de tramas :face_in_clouds: y episodios :+1: :star_struck:
-### Donde verlo [HBO max] (https://elvortex.com/el-final-de-un-show-mas-y-su-epico-desenlace/)
-### Su trama [Wikipedia de un show mas] (https://es.wikipedia.org/wiki/Regular_Show)
+### Donde verlo [HBO max](https://elvortex.com/el-final-de-un-show-mas-y-su-epico-desenlace/)
+### Su trama [Wikipedia de un show mas](https://es.wikipedia.org/wiki/Regular_Show)
 ### Imagenes de portada 
 ![img.png](img.png)
 ![img_1.png](img_1.png)
